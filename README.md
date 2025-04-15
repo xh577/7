@@ -1,10 +1,10 @@
 :bangbang::bangbang:西湖（xihu）最新地址发布:bangbang::bangbang:
 ===================
 
-🔥 👉 【地址一】 ：https://xh725.xyz/
+🔥 👉 【地址一】 ：https://xh338.vip/
 --------------------------------------
 
-🌐 👉【地址二】 ：https://xh855.xyz/
+🌐 👉【地址二】 ：https://xh388.vip/
 --------------------------------------
 
 🤖👉TG小程序  ：https://t.me/xhbetbot
