@@ -10,7 +10,7 @@
 🤖👉TG小程序  ：https://t.me/xhbetbot
 -------------------------------------
 
-👉👉加入 TG频道号  ：https://t.me/xihuwin
+👉👉TG频道号  ：https://t.me/xihuwin
 -----------------------------------------
 
 🎀👉在线客服  ：https://t.me/xihu_win
